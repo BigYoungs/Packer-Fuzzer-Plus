@@ -197,7 +197,5 @@
 
 ## DownLoad&获取最新版本
 
-**[国内用户：点我获取最新版：https://note.mowen.cn/note-intro/?noteUuid=MSdbowxbuFvo11224Ms1u](https://note.mowen.cn/note-intro/?noteUuid=MSdbowxbuFvo11224Ms1u)**
-
-**[Overseas users click me: https://ko-fi.com/s/903a73abf3](https://ko-fi.com/s/903a73abf3)**
+[https://mbd.pub/o/bread/mbd-ZZmWl5lv](https://mbd.pub/o/bread/mbd-ZZmWl5lv)
 
