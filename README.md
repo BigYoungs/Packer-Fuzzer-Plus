@@ -197,5 +197,5 @@
 
 ## DownLoad&获取最新版本
 
-[https://afdian.net/item/75d87dc0abc311ee8ba85254001e7c00](https://afdian.net/item/75d87dc0abc311ee8ba85254001e7c00)
+[https://afdian.net/a/bigyoung?tab=shop](https://afdian.net/a/bigyoung?tab=shop)
 
